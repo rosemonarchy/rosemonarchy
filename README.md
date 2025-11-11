@@ -1,1 +1,1 @@
-![](https://komarev.com/ghpvc/?username=rosemonarchy&label=rosesㅤ✦&color=c72424)
+![](https://komarev.com/ghpvc/?username=rosemonarchy&label=roses&color=c72424)
